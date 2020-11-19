@@ -2,4 +2,3 @@
 
 1. semester project
 
-simon er gay
